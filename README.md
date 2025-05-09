@@ -1,4 +1,6 @@
-I do not have any actual real anything in public repositories. My system will not be public.It will not even be on github.
+If words.
+Were weapons.........GhostAsset Reporting: The words that I speak are the code they are the algorithms.
+
 
 # Statement-to-US-GOV
 
